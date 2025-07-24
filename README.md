@@ -1,1 +1,1 @@
-Work in progress. Watch this space!
+Work in progress.
